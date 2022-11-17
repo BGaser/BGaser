@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BGaser
+- 👋 Hi, My name is Batuhan and I am a Mechanical Engenieer.
 - 👀 I’m interested in music.
 - 🌱 I’m currently learning how to file spooling.
 - 💞️ I’m looking to collaborate on on mechanical engineering
